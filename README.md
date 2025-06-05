@@ -45,7 +45,7 @@
 
 ![Снимок экрана от 2025-06-05 23-58-52](https://github.com/user-attachments/assets/3711358a-e39b-4ca6-b8b7-21c1ea810751)
 
-
+![Снимок экрана от 2025-06-06 00-26-20](https://github.com/user-attachments/assets/4a10b5ad-af69-4b78-ad2f-2182f6b5aa86)
 
 ![Снимок экрана от 2025-06-05 23-59-44](https://github.com/user-attachments/assets/17964118-8e06-4df8-a421-4e249187c562)
 
